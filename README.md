@@ -10,4 +10,4 @@
 
 聚合91精品国产最新资源站，每日同步更新不卡资源，涵盖日韩、国产、欧美日韩等多区域内容，全部视频免费开放。平台界面简洁清爽，支持多端在线播放，体验更加纯粹无干扰。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sap20250709/sap14 ）</span>
